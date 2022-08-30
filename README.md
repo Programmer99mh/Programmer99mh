@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Programmer99mh
 - 👀 I’m interested in video games
-- 🌱 I’m currently learning ???
+- 🌱 I’m currently learning programing
 - 💞️ I’m looking to collaborate on ???
 - 📫 How to reach me mhehl26@gmail.com
 
